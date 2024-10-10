@@ -1,1 +1,1 @@
-D for always pick the dungens
+D for Demon slayer
