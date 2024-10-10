@@ -1,1 +1,1 @@
-C for Congratulations
+C for couragious
