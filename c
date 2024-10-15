@@ -1,1 +1,1 @@
-C for couragious
+C for common
